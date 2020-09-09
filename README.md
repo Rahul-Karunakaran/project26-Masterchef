@@ -1,0 +1,1 @@
+Mutton Gola, made with minced meat. Its a traditional chettinad dish. It contains spices and herbs. It is served as a starter. Tastes yummy amd healthy too. 
